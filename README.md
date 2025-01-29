@@ -1,1 +1,0 @@
-# rondapoetica.cm-leiria.pt
